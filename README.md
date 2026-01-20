@@ -1,2 +1,2 @@
-![woke](https://files.catbox.moe/en8ufn.jpg)
+![woke](https://files.catbox.moe/rye1mx.webp)
 ⠀
