@@ -1,2 +1,2 @@
-![woke]((https://files.catbox.moe/thoh6r.jpg))
+![woke]([https://files.catbox.moe/thoh6r.jpg])
 ⠀
